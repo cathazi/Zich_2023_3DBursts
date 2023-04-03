@@ -1,1 +1,1 @@
-# ZIch_2023_3DBursts
+# Zich_2023_3DBursts
